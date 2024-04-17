@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Irma
 - 👀 I’m interested in meeting people from different cultures
 - 🌱 I’m currently learning cybersecurity
-- 💞️ I’m looking to collaborate on ... I'm not.
+- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: shoot me a text
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love watching beauty pageants
